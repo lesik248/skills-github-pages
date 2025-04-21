@@ -1,4 +1,5 @@
 ---
-title: Welcome to my blog
+title: I fucking love microplastic.
 ---
 
+# Follow me
